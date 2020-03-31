@@ -10,6 +10,10 @@ should replace evolution-based humanity ASAP.
 
 replacement of human labour is not a danger, it is a blessing. deal with it.
 
+### calendar
+
+slow progression towards a metric calendar. length of day and year are set. then adapt SI.
+
 ### capital punishment
 
 the death penalty is the antiqued relict of our primeval desire for revenge.
@@ -46,14 +50,19 @@ tibet and xinjiang are parts of china.
 the 1984 sino-british joint declaration was a shameless treaty on the part of britain, yet china signed it. since the citizens of the republic of china are overwhelmingly content with their own system of government, and china's dealing with hong kong under the alleged "one country, two systems" is obviously not on the cards anymore, i support the ROC to be recognised as an independent country. PRC won the civil war, they failed to takeover taiwan. deal with it. after all, we coped with e.g. divided vietnam, germany, and still today korea. who would say that north korea isn't legitimately korea, who would say that south korea isn't legitimately korea? speak up.
 afterall, china, whatever that meant in the past, was divided for most of its history, the idea that it is today shouldn't let anybody weep. reunification is always on the cards, but in today's age never by war, for it will never again reunificate the hearts.
 
-*except, north korea is best korea. we require more minerals.
+_*except north korea is best korea. we require more minerals._
+
+### orthography
+
+abbreviations upper case e.g. USA, except linguistic abbreviations e.g. i.e. rest lowercase.
+TBT
 
 ### places of worship in state property
 see public places of worship
 
 ### politicians
 
-record-proven rising up the ranks from locally-elected officials
+record-proven rising up the ranks from locally-elected officials.
 (should somehow be open to record-proven cross entrants aswell, TBT)
 
 ### power sources
@@ -77,7 +86,8 @@ universal public smoking ban, including streets and commercial places. bars and 
 
 ### public holidays
 
-one national holiday. set amount of minimum holidays per year for everybody, free to choose when to take. no differentiation between workday or weekday, day or night. slow progression towards a metric calendar.
+one national holiday. set amount of minimum holidays per year for everybody, free to choose when to take. no differentiation between workday or weekday, day or night.
+see calendar
 
 ### public places of worship
 
