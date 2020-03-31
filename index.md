@@ -46,7 +46,7 @@ then, imagine you instead were to post "i fervently welcome the trump virus back
 
 your post isn't censored. no. your post isn't lost in the depths of weibo. no. your post is liked thousands of times and shared millions of times.
 
-needless to say, chinese media doesn't condemn these at all. they aren't even covering them. nor are they covering daily acts of blatant racism against foreigners in china during this pandemic, as western media had done about anti-asian racism in the west. no. not even slightly, not even once. chinese media are busy to further heat up comments, self-censor differing opinions, deflect public attention and spread ridiculous conspiracy theories on the origin of the virus. speaking of which...
+needless to say, chinese media doesn't condemn these at all. they aren't even covering them. nor are they covering daily acts of blatant racism against foreigners in china during this pandemic as western media had done about anti-asian racism in the west. no. not even slightly, not even once. chinese media are busy to further heat up comments, self-censor differing opinions, deflect public attention and spread ridiculous conspiracy theories on the origin of the virus. speaking of which...
 
 the latter is the obvious reason for trump's change of mind. and rightly so.
 
