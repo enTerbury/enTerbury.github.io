@@ -99,6 +99,7 @@ see public places of worship
 ### politicians
 
 record-proven rising up the ranks from locally-elected officials.
+
 (should somehow be open to record-proven cross entrants aswell, TBT)
 
 ### power sources
@@ -108,6 +109,7 @@ nuclear and renewable.
 ### public education
 
 TBT
+
 school ages 6-16. primary education is kindergarten.
 subjects divided into 30 (25-36) modules each, typically 3 months long. students progress upon completing applying exams.
 teaching style heavenly depends on subject, e.g. mathematics is taught mainly through apps, i.e. self-taught
