@@ -1,5 +1,7 @@
 [change my mind](mailto:epo_freak@hotmail.de)
 
+spotted a logical error? ouch, that does hurt me. deservedly insult me by telling me of it, or laugh up your sleeve at the primate which i am.
+
 i try to be both precise and succinct, while still leaving room for various degrees of implementations to allow it to be applied everywhere in the world.
 
 ### AI
@@ -25,6 +27,39 @@ see state
 ### freedom
 
 freedom of anything bound by the freedom of anybody. not just a phrase, implement it.
+
+### freedom of speech and racism in the face of the 2020 covid-19 pandemic
+
+when i first heard of chinese reports complaining about the use of racist "wuhan virus" in the west, i couldn't believe my senses. i clearly remembered that i had seen the corresponding chinese word in chinese media and weibo. it was used in particular by global times, subsidiary of the people's daily. i don't recall allegations of racism back then. not once had i come across the term in western media.
+
+the heat was undoubtedly stirred up by US president trump when he twittered about the chinese virus on 15 march. while discussions about racism roar, it should be noted that he had called it "CoronaVirus" in the weeks beforehand. what changed his mind is too obvious to be lost in endless and pointless twitter wars.
+
+there is now a flood of chinese users on twitter insulting trump, america and the west as a whole. many westerners and western media join them, at least on the trump part. #TrumpVirus is used at least as much as #ChineseVirus.
+
+yes, there are xenophobic and racist people in the west and on twitter. it is hideous. and, no shit sherlock. in view of this discussion, however, it must be noted that this isn't a modern invention of the west, sadly, it is human, and that for every racist tweet there are a hundred comments opposing it. for every racist american there are a thousand americans who will counter them. after every racist incident, mass stream media condemns it. repeatedly, and emphatically.
+
+we conclude: in the west, to a certain degree, there is still freedom of speech. people can say practically everything from A to Z, and the mere fact that somebody says X means practically nothing.
+
+let's compare. imagine you were to post "the chinese virus is the fault of the ccp" on weibo. guess what, your post, it's gone. and depending on your physical location, you might be too. this is china, and i will not judge. 不过，实事求是，these are the facts. let's suppose the way it's done is good.
+
+then, imagine you instead were to post "i fervently welcome the trump virus back in america" or "may the pandemic live forever in japan" or "go corony! kill as many foreigners as you can!"
+
+your post isn't censored. no. your post isn't lost in the depths of weibo. no. your post is liked thousands of times and shared millions of times.
+
+needless to say, chinese media doesn't condemn these at all. they aren't even covering them. nor are they covering daily acts of blatant racism against foreigners in china during this pandemic, as western media had done about anti-asian racism in the west. no. not even slightly, not even once. chinese media are busy to further heat up comments, self-censor differing opinions, deflect public attention and spread ridiculous conspiracy theories on the origin of the virus. speaking of which...
+
+the latter is the obvious reason for trump's change of mind. and rightly so.
+
+the incompetent handling of the pandemic in the west is logically independent of the outbreak in china. given certain eating habits, hygienic conditions and the handlings of officials it is not racist but precise to call SARS-CoV-2 the chinese virus. anybody who calls this racist is conceding the lack of argument against it.
+
+it is none of the west's business to decide how china sets itself up. but if there is one thing china seems to have learnt from the west up until today, it is its excessive use of applying double standards. its perfection of hypocrisy. talk about 双标。
+
+we conclude:
+
+the west has relative freedom of speech. a minority is racist, the majority isn't. the media mostly isn't. the media coverage is far from perfect, but everybody can access the whole picture, if they want to.
+in china, a lot more content is censored. including the stating of historical facts, e.g. if they allegedly threaten social order. blatant racism isn't always censored though. the majority may or may not be racist. so is the media. how would one know? let's talk about something else.
+
+here we go. welcome to planet earth, 2020.
 
 ### ideology
 
