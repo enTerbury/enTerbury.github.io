@@ -81,7 +81,7 @@ immediate disappropriation of all property that can be traced back to property w
 
 ### one china
 
-tibet and xinjiang are parts of china.
+ask zhu yuanzhang if tibet and xinjiang are parts of china.
 
 the 1984 sino-british joint declaration was a shameless treaty on the part of britain, yet china signed it. since the citizens of the republic of china are overwhelmingly content with their own system of government, and china's dealing with hong kong under the alleged "one country, two systems" is obviously not on the cards anymore, i support the ROC to be recognised as an independent country. PRC won the civil war, they failed to takeover taiwan. deal with it. after all, we coped with e.g. divided vietnam, germany, and still today korea. who would say that north korea isn't legitimately korea, who would say that south korea isn't legitimately korea? speak up.
 afterall, china, whatever that meant in the past, was divided for most of its history, the idea that it is today shouldn't let anybody weep. reunification is always on the cards, but in today's age never by war, for it will never again reunificate the hearts.
@@ -158,6 +158,10 @@ no mention of religion and state in the same sentence in official documents on c
 ### state
 
 antediluvian remnant of the past, justified today, to be abolished in the future.
+
+### taiwan
+
+should be recognised as what it is - an independent country.
 
 ### TBT
 
